@@ -1,0 +1,1 @@
+# Multiparadigm_lab1
